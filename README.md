@@ -10,4 +10,4 @@ Meu nome é Eduardo Bonafé
 
   edgadobob@gmail.com
 
-    ![](https://media1.tenor.com/m/V8Wl29TEfR4AAAAd/jojos-bizarre-adventure-iggy-jojo.gif)
+    ![](https://media1.tenor.com/m/-sVg_rFq170AAAAC/bucciarati-bruno-bucciarati.gif)
